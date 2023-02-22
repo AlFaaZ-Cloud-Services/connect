@@ -1,1 +1,0 @@
-jaldi order karre
